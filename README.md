@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Vug6r trying to figure out things as a junior software developer
